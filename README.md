@@ -8,4 +8,8 @@ With this sample there is PDF document available to help developers start using 
 
 ***Download PDF document available in this repository***
 
-![](https://thumbs.gfycat.com/SadAmusedHydatidtapeworm-size_restricted.gif) ![](https://thumbs.gfycat.com/AmbitiousDeadlyKiskadee-size_restricted.gif)
+![](https://thumbs.gfycat.com/SadAmusedHydatidtapeworm-size_restricted.gif)
+
+![](https://thumbs.gfycat.com/AmbitiousDeadlyKiskadee-size_restricted.gif)
+
+![](https://thumbs.gfycat.com/CraftyDiscreteAcornweevil-size_restricted.gif)
